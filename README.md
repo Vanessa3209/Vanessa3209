@@ -1,0 +1,5 @@
+-  Hi, ich bin Vanessa aka Vanessa3209
+- Ich interessiere mich an Minecraft
+- Meine Hobbys sind Minecraft zocken, lernen , im skybad arbeiten und raus gehen.
+- Ein typischer tag ist 7 uhr aufstehen bis 13 uhr schule nachhause und zocken.
+- LG Vanessa3209
